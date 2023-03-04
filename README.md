@@ -1,1 +1,1 @@
-Sou formado em Publicidade e Propaganda e curso Análise e Desenvolvimento de Sistemas. Trabalhei por 3 anos na área de e-commerce, atualmente sou um profissional em transição de carreira e estou como estagiário em desenvolvimento C# | .Net.
+Sou formado em Publicidade e Propaganda e curso Análise e Desenvolvimento de Sistemas. Trabalhei por 3 anos na área de e-commerce, atualmente sou um profissional em transição de carreira e estou como estagiário em desenvolvimento C# | .Net. na 5by5.
